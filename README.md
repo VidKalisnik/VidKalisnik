@@ -10,4 +10,3 @@ In my free time, you can find me tinkering with new technologies and working on 
 
 🤝 Collaborations welcome! Feel free to reach out if you have an interesting project in mind and think I might be able to help.
 
-😄 Thanks for stopping by!
